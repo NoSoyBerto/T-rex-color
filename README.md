@@ -1,1 +1,1 @@
-# T-rex-color
+# COLOR HAPPY T-REX
